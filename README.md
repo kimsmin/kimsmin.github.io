@@ -1,1 +1,0 @@
-# kimsmin.github.io
